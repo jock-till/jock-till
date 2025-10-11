@@ -1,4 +1,6 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/08405856-c72c-4a64-b4e1-fb97cfd0fcbb" /> " don't be afraid, hold my hand, mademoiselle. " <img width="21" height="12" alt="image" src="https://github.com/user-attachments/assets/3f9dabc5-edda-44e3-922e-44520d663b00" />
+<img width="512" height="769" alt="image" src="https://github.com/user-attachments/assets/c4edcb32-bd56-4dc3-9796-91b02373fa5d" />
+
 
 
 <!--
