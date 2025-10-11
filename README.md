@@ -1,4 +1,4 @@
-i am still making this..ok? ehhehshshha.aekdfujoihfd
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/08405856-c72c-4a64-b4e1-fb97cfd0fcbb" /> " don't be afraid, hold my hand, mademoiselle. " 
 
 <!--
 **bunnytrapped/bunnytrapped** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
