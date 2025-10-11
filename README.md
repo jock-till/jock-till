@@ -2,7 +2,8 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/67907ee8-bac0-495a-b49e-770d979797e6" />‧˚🐾୭.
 <img width="300" height="600" alt="image" src="https://github.com/user-attachments/assets/1cdf673d-61ea-4e7f-9f3a-1f9a5b98bd4f" />
 ִֶ🐇་༘ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/edface8b-4918-48c7-855b-743f0c57f379" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/25dcb3b5-d540-41f0-8d90-7fb5c8d25b25" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/5f1eb31a-8fbf-4db1-8001-141f8e2899bb" /> "you can put it in my video ! " <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/166d0de5-2352-4265-ac69-8182ad2f7e9d" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e08257d1-7fa7-4afc-ae0d-143f6b7a6b99" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4e61b93e-54da-4f7d-a4ad-498f19d99fd1" /> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/16140cde-1334-4725-9074-9e117511df1e" /> .ᐟ.ᐟ
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e08257d1-7fa7-4afc-ae0d-143f6b7a6b99" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4e61b93e-54da-4f7d-a4ad-498f19d99fd1" /> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/16140cde-1334-4725-9074-9e117511df1e" /> .ᐟ.ᐟ <img width="943" height="533" alt="image" src="https://github.com/user-attachments/assets/b425e150-a143-45aa-8a7b-289d5432a88c" />
+
 
 
 
